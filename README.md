@@ -1,2 +1,2 @@
 # crispy-hockeypuck
-I collect coffee shops
+I travel 🚀. I write 📝. I collect coffee shops🍵.️
